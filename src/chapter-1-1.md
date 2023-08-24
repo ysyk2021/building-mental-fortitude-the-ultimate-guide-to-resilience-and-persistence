@@ -1,5 +1,3 @@
-The Importance of Mental Fortitude in Personal and Professional Growth
-====================================================================================
 
 In today's fast-paced and ever-changing world, mental fortitude is becoming increasingly important for personal and professional growth. The ability to cope with stress, overcome obstacles, and persist through challenges is essential for achieving success and well-being in all aspects of life.
 

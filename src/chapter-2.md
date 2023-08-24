@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Power of Resilience
-================================================
 
 Resilience is a powerful tool for building mental fortitude and persistence. It allows individuals to cope with adversity, recover from setbacks, and achieve their goals with determination. This chapter will explore the theory of resilience, different components of resilience, developing self-awareness as a resilient person, and building trust in the process of resilience-building.
 

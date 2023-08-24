@@ -1,5 +1,3 @@
-Building a Culture of Positivity and Gratitude
-========================================================================================
 
 Cultivating positive thinking is crucial for building mental fortitude. It involves developing a positive attitude, focusing on strengths and opportunities, and expressing gratitude. In this chapter, we will explore the importance of cultivating positive thinking, building a culture of positivity and gratitude, and techniques for doing so.
 

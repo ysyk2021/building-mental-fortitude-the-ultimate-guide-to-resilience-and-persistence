@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset During Challenging Times
-============================================================================================================================
 
 Embracing adversity and overcoming obstacles are essential components of building mental fortitude, resilience, and persistence. Developing a growth mindset is an important strategy for building a culture of perseverance and grit during challenging times. This chapter will explore techniques for developing a growth mindset effectively.
 

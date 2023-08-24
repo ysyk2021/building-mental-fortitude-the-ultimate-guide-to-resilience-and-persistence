@@ -1,5 +1,3 @@
-Techniques for Integrating Resilience and Persistence into Problem-Solving
-===================================================================================================================================================
 
 Resilience and persistence are essential skills for building mental fortitude. In this chapter, we will explore techniques for integrating resilience and persistence into problem-solving.
 

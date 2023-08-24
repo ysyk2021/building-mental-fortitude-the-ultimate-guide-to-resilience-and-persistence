@@ -1,5 +1,3 @@
-What is Mental Fortitude?
-=======================================
 
 Mental fortitude refers to the ability to maintain a positive and resilient mindset in the face of adversity. It involves developing the skills and attitudes necessary to cope with stress, overcome obstacles, and persist through challenges. Mental fortitude is not just about "toughing it out" or ignoring one's emotions, but rather involves a balanced approach that acknowledges difficult emotions while also focusing on solutions and positive outcomes.
 

@@ -1,5 +1,3 @@
-Overview of Resilience Theory
-===============================================================================
 
 In this chapter, we will explore the concept of resilience and its importance in building mental fortitude. We will provide an overview of resilience theory, including its definition, key components, and models of resilience.
 

@@ -1,5 +1,3 @@
-Chapter 4: Cultivating Positive Thinking
-========================================
 
 Positive thinking is a crucial component in building mental fortitude. It helps you develop an optimistic mindset, overcome challenges, and bounce back from setbacks. This chapter explores the importance of cultivating positive thinking and provides techniques for developing an optimistic mindset.
 

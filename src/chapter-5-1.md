@@ -1,5 +1,3 @@
-The importance of cultivating positive thinking in resilience-building
-================================================================================================================
 
 Positive thinking is an essential component of building mental fortitude. It helps individuals develop an optimistic mindset, overcome obstacles, and bounce back from setbacks. In this chapter, we will explore the significance of cultivating positive thinking in resilience-building.
 

@@ -1,5 +1,3 @@
-Chapter 5: Building Self-Confidence
-===================================
 
 Self-confidence is a crucial component of building mental fortitude. It helps individuals approach challenges with a positive attitude, maintain motivation, and overcome obstacles. In this chapter, we will explore the importance of building self-confidence in resilience-building and techniques for developing self-confidence.
 

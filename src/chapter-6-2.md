@@ -1,5 +1,3 @@
-Techniques for Developing Self-Confidence
-==============================================================================
 
 Self-confidence is a critical component of building mental fortitude. It helps individuals approach challenges with a positive attitude, maintain motivation, and persevere through obstacles. In this chapter, we will explore techniques for developing self-confidence.
 

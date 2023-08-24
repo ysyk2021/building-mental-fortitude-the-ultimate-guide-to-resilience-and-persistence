@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs and Negative Self-Talk
-============================================================================================
 
 Positive thinking is essential for building mental fortitude. However, individuals may face obstacles such as limiting beliefs and negative self-talk that hinder their ability to maintain a positive mindset. In this chapter, we will explore strategies for addressing limiting beliefs and negative self-talk.
 

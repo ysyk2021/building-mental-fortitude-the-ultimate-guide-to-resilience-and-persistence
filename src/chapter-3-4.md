@@ -1,5 +1,3 @@
-Building a Culture of Perseverance and Grit
-====================================================================================================
 
 Embracing adversity and overcoming obstacles are essential components of building mental fortitude, resilience, and persistence. This chapter will explore strategies for building a culture of perseverance and grit.
 

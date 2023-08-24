@@ -1,5 +1,3 @@
-Chapter 2: Embracing Adversity and Overcoming Obstacles
-=======================================================
 
 Embracing adversity and overcoming obstacles are essential components of building mental fortitude, resilience, and persistence. This chapter will explore the importance of embracing adversity and overcoming obstacles, common challenges in overcoming obstacles, techniques for developing a growth mindset during challenging times, and building a culture of perseverance and grit.
 

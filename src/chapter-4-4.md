@@ -1,5 +1,3 @@
-Building a Culture of Self-Care and Relaxation
-======================================================================================
 
 Stress and anxiety are common experiences that can negatively impact mental fortitude. In this chapter, we will explore the importance of managing stress and anxiety, building a culture of self-care and relaxation, and techniques for doing so.
 

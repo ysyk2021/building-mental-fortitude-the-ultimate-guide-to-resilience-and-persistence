@@ -1,5 +1,3 @@
-Identifying Different Components of Resilience
-================================================================================================
 
 In this chapter, we will explore different components of resilience and how they contribute to building mental fortitude. We will discuss the importance of each component and provide practical tips for developing and strengthening them.
 

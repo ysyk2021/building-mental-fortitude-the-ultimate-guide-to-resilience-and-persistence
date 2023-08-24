@@ -1,5 +1,3 @@
-Chapter 6: Developing Persistence
-=================================
 
 Persistence is a critical component of building mental fortitude. It helps individuals overcome obstacles, achieve their goals, and create lasting change. In this chapter, we will explore the importance of developing persistence in resilience-building, techniques for building persistence and determination, addressing common obstacles and challenges in developing persistence, and building a culture of consistency and tenacity.
 

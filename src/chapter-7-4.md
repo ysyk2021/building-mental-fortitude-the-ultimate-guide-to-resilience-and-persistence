@@ -1,5 +1,3 @@
-Building a Culture of Consistency and Tenacity
-=================================================================================
 
 Persisting through challenges is a critical component of mental fortitude. It involves sticking with goals and tasks even in the face of obstacles and setbacks. In this chapter, we will explore strategies for developing persistence and building a culture of consistency and tenacity.
 
