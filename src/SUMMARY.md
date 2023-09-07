@@ -41,3 +41,4 @@
   - [Building a legacy of resilience and persistence-driven solutions](chapter-8-4.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
