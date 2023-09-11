@@ -1,5 +1,4 @@
-Chapter: Developing Self-Awareness as a Resilient Person
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "Building Mental Fortitude: The Ultimate Guide to Resilience and Persistence," we will explore the importance of developing self-awareness as a key component of building resilience. Self-awareness is essential for understanding our thoughts, emotions, strengths, and limitations, enabling us to navigate challenges and cultivate the mental fortitude necessary to persist in the face of adversity.
 
